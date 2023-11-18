@@ -1,3 +1,3 @@
 ### Hey! 👋
 
-""'Digital Craftsman"**
+How to contact me: B29_. (On discord)

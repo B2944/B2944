@@ -1,3 +1,3 @@
 ### Hey! 👋
 
-How to contact me: B29_. (On discord)
+-  📧 How to contact me: B29_. (On discord)
